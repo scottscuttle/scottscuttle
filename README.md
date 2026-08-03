@@ -8,4 +8,6 @@ I may be writing fanfics for myself sometimes if the boredom gets too much, you 
 
 Refrain from asking for my socials such as my Twitter, Bluesky or Tumblr. You may ask for my Discord but other than that everything else is off limits if I don’t know you long enough.
 
+If I don’t wish to interact with you please respect that.
+
 more to be included soon…
